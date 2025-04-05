@@ -1,4 +1,4 @@
-## Weight Loss Options from Mexico
+## Weight Loss Options from Mexico I found - for the stimulant medication shortages
 ## These are stimulants and alternatives to USA ADHD drugs like adderall, dexedrine, etc
 
 Mazindol is in clinical trials for ADHD and Narcolepsy in ER form, which will be patented.. and cost too much. The original Mazindol 
@@ -9,7 +9,9 @@ I found the site on reddit, they import into USA and then resell at a profit. UR
 
 https://alienresearchmx.netlify.app/
 
-Use Cashapp to buy bitcoin and then you can send from that or to a bitcoin wallet. 
+I last ordered on 4/1/25 so its conveinent. 4 day shipping if in USA.
+
+I Use Cashapp to buy bitcoin and then you can send from that. The site shows a QR code you can scan in cashapp/a wallet app.
 
 ### Clobenzorex
 
